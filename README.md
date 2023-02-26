@@ -1,4 +1,4 @@
-# 230212-LSP-Report-Sheet-5.7.2
+# 230212-LSP-Report-Sheet-5.7.2.
 Report Sheet (LKS) Lembaga Sertifikasi Profesi 5.7.2 Tahun 2022/2023.
 
 ---
